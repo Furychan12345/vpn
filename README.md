@@ -1,1 +1,6 @@
-# vpn
+NOTICE:
+
+"DAKO KAG ITLOG BOY"
+🤣😂😛😜😝🤪...
+
+-BY ADMIN-
